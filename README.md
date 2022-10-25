@@ -36,3 +36,5 @@ Zet terug in de oven voor ongeveer 8 minuten. Zet de oven ongeveer 1 minuut op h
 Haal pizza uit de oven, strooi gedroogde basilicum en of Oregano en laat de pizza afkoelen voor het serveren.
 
 ![Pizza recept](Pizza_Recipe-2-2.webp)
+
+[Voor meer informatie klik op mij.](https://homepizzaworks.com/white-sauce-pizza-recipe/)
